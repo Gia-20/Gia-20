@@ -1,4 +1,4 @@
-# Hi, I'm Geetanjali 👋
+# Hi, I'm Geetanjali
 
 I'm a student at the **University of Illinois Chicago** pursuing a dual degree: a **B.S. in Information and Decision Sciences** (Management Information Systems concentration) and a **B.A. in Economics**, graduating in **May 2027**.
 
